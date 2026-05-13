@@ -1,0 +1,1 @@
+# Excess-Returns-of-the-US-Manufacturing-Index-A-Fama-French-Five-Factor-Model-Analysis
